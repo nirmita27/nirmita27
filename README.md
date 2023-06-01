@@ -1,5 +1,5 @@
-                                                                                👋 Hi, I’m @nirmita27 
-                                                                      🌱 Currently learning and exploring things
+                                                                          👋 Hi, I’m @nirmita27 
+                                                                  🌱 Currently learning and exploring things
 - 👀 I’m interested in
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
